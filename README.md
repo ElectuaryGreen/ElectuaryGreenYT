@@ -1,0 +1,2 @@
+# ElectuaryGreenYT
+Hello! My name is Dominik. I am 15 years old. I am a Minecraft Server Creator / Developer. In addition, I create a Minecraft Client / Hack Menu, mod. My YouTube Channel: https://www.youtube.com/channel/UCxl_21evn2-j31Lh5-Wdbmw Other than that: GTA 5 RolePlay Modern Menu Creation I'm happy to undertake, But of course I don't like this so much, I prefer minecraft stuff.  My Discord contact: ElectuaryGreenYT_#3871 My phone number is 06309511764 My email address: szurmidominik@gmail.com Dominik EV of Suromi.
